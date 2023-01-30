@@ -1,1 +1,1 @@
-Visit https://acmesoftware.com/ for detail.
+https://acmesoftware.com/
